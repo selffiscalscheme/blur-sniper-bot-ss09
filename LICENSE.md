@@ -1,4 +1,4 @@
-# 
+# quantitative blur sniper bot | bulk-purchases + cross-market-arbitrage is the best blur sniper bot, featuring bulk-purchases and cross-market-arbitrage. Fast, smart, and optimized
 
 
 
